@@ -1,5 +1,5 @@
 
-![B](https://i.ibb.co/Cs45vCGb/20251219-1540-simple-compose-01kcvddqxpfd3bgr4kkvnf0qm7.png)
+![B](https://i.postimg.cc/Vvxx2whh/20251219-1540-Banner-dla-Githab-simple-compose-01kcvddqxpfd3bgr4kkvnf0qm7.png)
 
   
 
